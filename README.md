@@ -24,4 +24,7 @@ A bit about myself:
 - Web-head 🕸️
 
 ![purple-divider](https://user-images.githubusercontent.com/7065401/52071927-c1cd7100-2562-11e9-908a-dde91ba14e59.png)
-[facebook](https://www.facebook.com/cpt.quangkhanh.09/)
+Contact me at:
+- [facebook](https://www.facebook.com/cpt.quangkhanh.09/)
+- 📧: khanhnguyenmcu@gmail.com
+
